@@ -1,4 +1,4 @@
 # Passando-vergonha
 
 Entao, não sei se tu disse sim, porque não tinha mais opção, ou disse sim porque de sim, mesmo. Mas um pouco de mim ta torcendo pra que vc tenha dito não so pra ver ele se movimentando kkkkkk. Um programador gosta de ver seu trabalho sendo testado ;-.
-Beleza, eu sei que vc nao gosta disso, mas o ano ta acabando ne vou mais encher seu saco nao ta kkkkkkkkkkk serio eu juro, vou parar. Caso queira saber que site e esse ja que voce e muito curiosa. Aqui ta algumas coisas que eu programei.
+Beleza, eu sei que vc nao gosta disso, mas o ano ta acabando ne vou mais encher seu saco nao ta kkkkkkkkkkk serio eu juro, vou parar. Caso queira saber que site e esse ja que voce e muito curiosa. Aqui ta algumas coisas que eu programei. aH, e seja sincera no que voce respondeu eu tambem sou curioso e seja paciente comigo kkkk
